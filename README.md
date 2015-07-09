@@ -1,2 +1,0 @@
-# fanspage
-Fanspage Toko Oshimura
